@@ -1,4 +1,4 @@
-# 
+# Atualizado Adobe Premiere Pro para PC scripts é o melhor Adobe Premiere Pro para PC scripts com controle de taxas de bits e gravação de áudio. Seguro, confiável e otimizado para
 
 
 
